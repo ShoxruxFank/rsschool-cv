@@ -1,1 +1,1 @@
-https://shoxruxfank.github.io/rsschool-cv/cv
+https://shoxruxfank.github.io/rsschool-cv
